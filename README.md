@@ -1,2 +1,2 @@
-# NST AI Ascension'23
+# NST AI Ascension
 ~ Kunj Kapadiya (202103018)
